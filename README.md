@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @scandaldemon
+- 👀 I’m interested in Jailbreak of consoles
+- 🌱 I’m a novice
+- 📫 How to reach me seanpmcdonald@hotmail.com
